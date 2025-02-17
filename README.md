@@ -1,1 +1,1 @@
-https://ariyan13186576.github.io/funny/
+https://nazmussakib2036.github.io/funny/
